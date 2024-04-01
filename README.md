@@ -1,1 +1,1 @@
-# jujutsu_kaisen_noticias1
+# jujutsu_noticias_1
